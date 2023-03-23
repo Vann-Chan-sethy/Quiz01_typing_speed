@@ -1,1 +1,1 @@
-# Quiz01_typing_speed   kru ot jes te
+# Quiz01_typing_speed
